@@ -5,7 +5,7 @@ This guide walks you through some of the most trusted developers who offer 3–5
 
 The key to a great investment is choosing a developer with a proven track record of quality and delivery. You want a name you can trust. Here is the list of top developers who are known for creating some of Dubai's most sought-after communities. 
 
-<h4>1. Emaar</h4>
+<h4>1. Emaar</h4> 
 
 Emaar Properties is one of the popular names among top Dubai off-plan property developers. They are true leaders in their field. This top company builds amazing projects from all over the world. In fact, they built the famous landmarks that define Dubai. You have probably seen their work: 
 
